@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ashdabest
 - 👀 I’m interested in coding, art and so much more
 - 🌱 I’m currently learning both block and script code
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on (undecided)
 - 📫 Reach me at my gmail savannahmsilkwood@gmail.com
